@@ -36,8 +36,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The second part of, If you know not me, you know no bodie VVith the building of the Royall Exchange:
+
 #####Body#####
+
+1. The second Part of If you know not mee, you know no bodie: With the building of the Exchange.
+
+    _ Actus Prima. Scena Prima.
 
 **Types of content**
 
